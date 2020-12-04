@@ -35,7 +35,7 @@ Another problem was that many of the interior leaves could not get any sunlight 
 
 **RESULTS**
 
- The coralberry survived and thrived and was joined by many other plants on the windowsill. It grew many more leaves and become slightly larger than when I got it. It also has some new tall growth which is pretty exciting! [A picture containing table, plate, plant  Description automatically generated](./plant_family.jpg)
+ The coralberry survived and thrived and was joined by many other plants on the windowsill. It grew many more leaves and become slightly larger than when I got it. It also has some new tall growth which is pretty exciting! ![A picture containing table, plate, plant  Description automatically generated](./plant_family.jpg)
 
 **CONCLUSIONS**
 
